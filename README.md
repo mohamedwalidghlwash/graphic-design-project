@@ -1,2 +1,2 @@
-# graphic-design-project
+# GLOBAL GATEWAYS
 https://drive.google.com/drive/folders/1pIgpSQa1qiL6F1gz_Kk8EkWmLxvk6Tli?usp=drive_link
